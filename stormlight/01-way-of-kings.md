@@ -45,7 +45,7 @@ More sexy taunts because Kaladin doesn't cry. Uh oh, the slave wagon train is lo
 
 _Shallan_
 
-Jasnah carries a Soulcaster, a bit of gem-encrusted jewelry which allows her to cast.. souls? It looks just like the one Shallan's father had. That's convenient. OMG the king is here. Well, not the real king, but a local king. Jasnah uses her Soulcaster to save the king's granddaughter by turning a large boulder into a puff of thick smoke. Yay! However, Jashah is unimpressed with Sallah the Under-educated Country Bumpkin, and refuses to accept her as a ward. Not good. Shallan needs to become her ward so she can steal her Soulcaster - swapping it with her fake one.
+Jasnah carries a Soulcaster, a bit of gem-encrusted jewelry which allows her to cast.. souls? It looks just like the one Shallan's father had. That's convenient. OMG the king is here. Well, not the real king, but a local king. Jasnah uses her Soulcaster to save the king's granddaughter by turning a large boulder into a puff of thick smoke. Yay! However, Jashah is unimpressed with Sallah the Under-educated Country Bumpkin, and refuses to accept her as a ward. Not good. Shallan needs to become her ward so she can steal her Soulcaster - swapping it with her broken one.
 
 ### 6 - Bridge Four
 
@@ -139,7 +139,7 @@ Petulant youth Kal complains to his (not quite) girlfriend that daddy wants him 
 
 _Kaladin_
 
-Kaladin goes shopping for medical supplies. They're expensive. Kaladin's moneyballs don't glow anymore even though they were fine this morning. Odd. But more immediately, a horn calls out indicating an assault that the bridgemen need to lead. Kaladin (acting leaderly) chooses the most dangerous spot (front and center) for the final bridgerun. Somehow all the incoming arrows miss Kaladin. How lucky. After the assault, Kaladin provides medical assistance to the fallen bridgemen, something no one else has ever done.
+Kaladin goes shopping for medical supplies. They're expensive. Kaladin's moneyballs don't glow anymore even though they were fine this morning. Odd. But more immediately, a horn calls out indicating an assault that the bridgemen need to lead. Kaladin (acting leaderly) chooses the most dangerous spot (front and center) for the final bridgerun. Somehow all the incoming arrows miss Kaladin. How lucky. After the assault, Kaladin provides medical assistance to the fallen bridgemen, something no one else has ever thought to do before.
 
 ### 18 - A Highprince of War
 
